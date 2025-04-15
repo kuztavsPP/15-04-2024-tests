@@ -2,4 +2,5 @@
 aaaaaaaaaaaasa
 gsdyatvs bortkrvicd
 cau es so atveru ar oiezimju blocinu
-spidolas gimnazija riga
+spidolas gimnazija 
+riga
